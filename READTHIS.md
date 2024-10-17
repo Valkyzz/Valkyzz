@@ -1,0 +1,5 @@
+- ✧₊⁺Valkyzz ୨ৎ
+- JoJo, One Piece, Evangelion.
+- Rei Ayanami. <3
+- noun-binarie.
+- literature.
